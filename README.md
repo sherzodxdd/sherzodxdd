@@ -23,10 +23,6 @@ I can really deliver what you want. I just need 2 things: Your trust and money.
 ---
 
 
-I'm usually unactive so please take note of it.
-- 📧 Email: **mkingboitest@gmail.com**
-- Instagram: https://instagram.com/iskandarvx7
-- Telegram: https://t.me/@mkingboi
 
 <h6>
   GAYTAMJQGAYTAIBQGEYDCMJQGAYCAMBRGEYTAMBQGAQDAMJRGEYTAMBQEAYDCMJQGAYTAMJAGAYTCMBRGEYDCIBQGAYTCMBQGAYSAMBRGEYDCMJQGEQDAMJRGAYDAMBREAYDCMBQGEYDAMBAGAYTCMBRGAYTCIBQGAYTCMJRGAYQ====
