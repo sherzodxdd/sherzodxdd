@@ -5,7 +5,8 @@
 
 ## About Me
 
-* just a student 👨‍🎓
-* and.. uhh IT programming ! 👨‍💻
-* also english student.. 🙋‍♂️
-* that's all ._. 👊
+* IT student programming ! 👨‍💻
+* also english student 🙋‍♂️
+
+  ## my dream
+  * be a 1st IT programer in the world!
